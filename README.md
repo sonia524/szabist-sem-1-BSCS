@@ -1,0 +1,1 @@
+# szabist-sem-1-BSCS
